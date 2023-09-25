@@ -8,4 +8,4 @@ I live in Sault Ste. Marie, ON. Canada
 
 I love moths!
 
-Check out my [inaturalist](https://https://inaturalist.ca/people/jackgelinas)!
+Check out my [inaturalist](https://inaturalist.ca/people/jackgelinas)!
